@@ -1,0 +1,2 @@
+# laurieteegardencounseling.com
+laurieteegardencounseling.com
